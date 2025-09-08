@@ -1,0 +1,1 @@
+# curriculo-1A-stange-
